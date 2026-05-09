@@ -15,6 +15,6 @@ Dijital altyapımızda gösterdiğimiz bu hassasiyeti, fiziksel ürünlerimizde 
 
 [Ahşap Duvar Dekoru:](https://www.emachdizayn.com/urun-kategori/ahsap-tasarim-dekorlar/) Tasarımlarımızda kullandığımız 3 mm ahşap, ürünlerin hafif kalmasını sağlayarak duvarlarda düşme riskini ortadan kaldırır.
 
-[Kedi ve Kuş Evleri:]([https://www.emachdizayn.com/urun-kategori/ahsap-tasarim-dekorlar/](https://www.emachdizayn.com/urun-kategori/petshop/) Sevimli dostlarımız için ürettiğimiz yuvalarda 6 mm yüksek mukavemetli ahşap kullanarak maksimum dayanıklılık sunuyoruz.
+[Kedi ve Kuş Evleri:](https://www.emachdizayn.com/urun-kategori/petshop/) Sevimli dostlarımız için ürettiğimiz yuvalarda 6 mm yüksek mukavemetli ahşap kullanarak maksimum dayanıklılık sunuyoruz.
 
 CNC Hassasiyeti: Tüm ürünlerimiz, lazer yanığı içermeyen, pürüzsüz ve temiz kenarlı modern CNC Router teknolojisi ile işlenmektedir.
